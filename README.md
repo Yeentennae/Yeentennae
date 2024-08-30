@@ -1,5 +1,5 @@
 
-<img src="https://files.catbox.moe/u9d1p2.gif"><img src="https://files.catbox.moe/qupc0s.gif"> Artist | Tranny | Furry | Tanner Buchanan Girlie (gender neutral) | Music Nerd in Training | <a href="https://invert.straw.page/">Guestbook/Music Reccomendation</a> <img src="https://files.catbox.moe/qupc0s.gif"><img src="https://files.catbox.moe/u9d1p2.gif">
+<img src="https://files.catbox.moe/u9d1p2.gif"><img src="https://files.catbox.moe/qupc0s.gif"> Artist | Tranny | Furry | Tanner Buchanan Girlie (gender neutral) | Music Nerd in Training | <a href="https://invert.straw.page/">Guestbook/Music Recs</a> <img src="https://files.catbox.moe/qupc0s.gif"><img src="https://files.catbox.moe/u9d1p2.gif">
 
 
 
