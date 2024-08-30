@@ -1,4 +1,4 @@
-"Be Excellent To Eachother!"
+
 <img src="https://files.catbox.moe/qupc0s.gif"> Artist | Tranny | Furry | Tanner Buchanan Girlie (gender neutral) | Music Nerd in Training <img src="https://files.catbox.moe/qupc0s.gif">
 
 
