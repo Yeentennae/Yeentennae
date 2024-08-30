@@ -33,6 +33,7 @@
 - <img src="https://64.media.tumblr.com/db35de3b17dcce3487490d477e491b68/4231fba9b8d4d181-40/s75x75_c1/2dccd7c0945bf72dd30ee9cb1d9127676a59311a.gif"> Machine Girl
 - <img src="https://64.media.tumblr.com/db35de3b17dcce3487490d477e491b68/4231fba9b8d4d181-40/s75x75_c1/2dccd7c0945bf72dd30ee9cb1d9127676a59311a.gif"> Fleet Foxes
 - <img src="https://64.media.tumblr.com/db35de3b17dcce3487490d477e491b68/4231fba9b8d4d181-40/s75x75_c1/2dccd7c0945bf72dd30ee9cb1d9127676a59311a.gif"> Simon & Garfunkel
+- <img src="https://64.media.tumblr.com/db35de3b17dcce3487490d477e491b68/4231fba9b8d4d181-40/s75x75_c1/2dccd7c0945bf72dd30ee9cb1d9127676a59311a.gif"> My Chemical Romance
 
 <img src="https://64.media.tumblr.com/932099fb4b685088ecbab20b71377880/1aa1f564141726a7-1f/s1280x1920/a0c83994de3a2dacb46f9b366b988cfe0612e66e.gif"> 
 
