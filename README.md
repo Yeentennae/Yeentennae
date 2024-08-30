@@ -32,6 +32,8 @@ I Love These Artists!
 - Fleet Foxes
 - Simon & Garfunkel
 
+<img src="https://64.media.tumblr.com/932099fb4b685088ecbab20b71377880/1aa1f564141726a7-1f/s1280x1920/a0c83994de3a2dacb46f9b366b988cfe0612e66e.gif"> 
+
 <!---
 Yeentennae/Yeentennae is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
