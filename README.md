@@ -20,7 +20,7 @@ Other Interests/Hyperfixations:
   - Minecraft Story Mode
   - FNaF
  
-<img src="https://files.catbox.moe/bust2t.gif">
+<img src="https://files.catbox.moe/bust2t.gif"><img src="https://files.catbox.moe/bust2t.gif"><img src="https://files.catbox.moe/bust2t.gif">
 
 I Love These Artists! 
 - Kendrick Lamar
