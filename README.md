@@ -15,20 +15,20 @@ Other Interests/Hyperfixations:
 - Physical Media
 
   Past Interests (I'll still talk about em!)
-  -Ace Attorney
-  -RPG Horror
-  -Minecraft Story Mode
-  -FNaF
+  - Ace Attorney
+  - RPG Horror
+  - Minecraft Story Mode
+  - FNaF
 
 I Love These Artists! 
--Kendrick Lamar
--Hot Mulligan
--Trampled By Turtles
--System of a Down
--JPEGMafia
--Machine Girl
--Fleet Foxes
--Simon & Garfunkel
+- Kendrick Lamar
+- Hot Mulligan
+- Trampled By Turtles
+- System of a Down
+- JPEGMafia
+- Machine Girl
+- Fleet Foxes
+- Simon & Garfunkel
 
 <!---
 Yeentennae/Yeentennae is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
