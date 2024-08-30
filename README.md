@@ -6,7 +6,7 @@
 <img src="https://64.media.tumblr.com/932099fb4b685088ecbab20b71377880/1aa1f564141726a7-1f/s1280x1920/a0c83994de3a2dacb46f9b366b988cfe0612e66e.gif"> 
 
 
-Other Interests/Hyperfixations:
+<img src="https://files.catbox.moe/lrj8b1.gif"> Other Interests/Hyperfixations: <img src="https://files.catbox.moe/lrj8b1.gif">
 - Cobra Kai / The Karate Kid
 - Invertibrates
 - My Little Pony
@@ -22,7 +22,7 @@ Other Interests/Hyperfixations:
  
 <img src="https://files.catbox.moe/bust2t.gif"><img src="https://files.catbox.moe/bust2t.gif"><img src="https://files.catbox.moe/bust2t.gif">
 
-I Love These Artists! 
+<img src="https://64.media.tumblr.com/5e3885dac1c1da7d354f1d84fd082f57/311837ac106ab3c7-51/s75x75_c1/07d7f7a717db2eb26a0eafaa48c533f548007eae.pnj"> I Love These Artists! <img src="https://64.media.tumblr.com/5e3885dac1c1da7d354f1d84fd082f57/311837ac106ab3c7-51/s75x75_c1/07d7f7a717db2eb26a0eafaa48c533f548007eae.pnj">
 - Kendrick Lamar
 - Hot Mulligan
 - Trampled By Turtles
