@@ -13,12 +13,14 @@
 - Fashion
 - Collecting (literally anything)
 - Physical Media
+- Pokemon
 
   Past Interests (I'll still talk about em!)
-  - Ace Attorney
-  - RPG Horror
-  - Minecraft Story Mode
-  - FNaF
+  <img src="https://files.catbox.moe/h8zwlz.gif"> Ace Attorney
+  <img src="https://files.catbox.moe/h8zwlz.gif"> RPG Horror
+  <img src="https://files.catbox.moe/h8zwlz.gif"> Minecraft Story Mode
+  <img src="https://files.catbox.moe/h8zwlz.gif"> FNaF
+  <img src="https://files.catbox.moe/h8zwlz.gif"> Kirby
  
 <img src="https://files.catbox.moe/bust2t.gif"><img src="https://files.catbox.moe/bust2t.gif"><img src="https://files.catbox.moe/bust2t.gif">
 
